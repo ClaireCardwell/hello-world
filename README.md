@@ -1,1 +1,1 @@
-Anjay mabar
+Alahhmaaakk bawa kotak pulaakk
